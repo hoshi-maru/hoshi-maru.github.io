@@ -1,1 +1,0 @@
-# hoshi-maru.github.io
